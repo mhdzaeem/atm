@@ -1,0 +1,1 @@
+all the componey atm are work information
